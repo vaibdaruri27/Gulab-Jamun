@@ -1,0 +1,3 @@
+The ingredients for Gulab Jamun are 3 tablespoons of all-purpose flour, 2 tablespoons ghee which are melted,
+a ½ teaspoon baking powder, a ½ cup warm milk, one tablespoon of chopped almonds, one tablespoon of chopped pistachio nuts, one tablespoon of golden raisins, one pinch of ground cardamom, one quart of vegetable oil for deep frying, one and ¼ cups of white sugar, seven ounces of water in a fluid form, one teaspoon of rose water,
+and 1 pinch of ground cardamom. That is it.
